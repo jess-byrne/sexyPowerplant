@@ -8,4 +8,3 @@ Today we learnt something!
 
 Eric B was the pioneer
 
-[Note to self] Need to add old picture here
